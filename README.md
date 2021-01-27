@@ -1,1 +1,1 @@
-Quwa
+Quwi
